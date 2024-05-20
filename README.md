@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ShivaBanala
+- 👀 I’m interested in website development
+- 🌱 I’m currently doing Masters in Information Technology in Florida State University
+- 💞️ I’m looking to collaborate on website development projects
+- 📫 you can reach me out through my email.. banalashivakumar765@gmail.com
+- 😄 Pronouns: He/His/Him
+- ⚡ Fun fact: Though I might not look it, I'm actually a huge foodie!
